@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Thatbointhebus, or you can just call me Peanut
+- 👀 I’m interested in Roblox Lua, Python
+- 🌱 I’m currently learning Roblox Lua
+- 📫 How to reach me: Dms, Email
